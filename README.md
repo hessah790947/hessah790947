@@ -1,7 +1,7 @@
 - 👋 Hi, I'm @hessah790947
-- 👀 I'm interested in becoming a professional Data Scientist.
-- 🌱 I'm currently learning Programming with Python and analyzing with SQL effectively
-- 💞️ I'm looking forward to do a personal project soon.
+- 👀 I'm interested now in becoming a professional HR employee.
+- 🌱 I'm currently expanding my knowledge as HR
+- 💞️ I'm looking forward to work as HR soon.
 - 📫 You can reach me by visiting my linkedin profile here: https://www.linkedin.com/in/hessah-alshbanh-13a136202/ 
 - Or use this email to contact me: hessah_alshbanh@outlook.com
 
