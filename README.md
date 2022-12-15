@@ -1,6 +1,6 @@
 - 👋 Hi, I'm @hessah790947
-- 👀 I'm interested now in becoming a professional HR employee.
-- 🌱 I'm currently expanding my knowledge as HR
+- 👀 I'm interested now in the Data of HR employees.
+- 🌱 I'm currently expanding my knowledge in the field of Human Resourses Management.
 - 💞️ I'm looking forward to work as HR soon.
 - 📫 You can reach me by visiting my linkedin profile here: https://www.linkedin.com/in/hessah-alshbanh-13a136202/ 
 - Or use this email to contact me: hessah_alshbanh@outlook.com
